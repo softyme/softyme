@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @softyme
+- 👀 I’m interested in kpop and video games
+- 🌱 I’m currently learning how to web modding and want to create my own one
+- 💞️ I never did coding or programming so I m a newbie!
+- 📫 discord: softyme
